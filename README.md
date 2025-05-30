@@ -1,0 +1,1 @@
+# Inquisitor-cheats-instant-cooldown
